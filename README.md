@@ -1,2 +1,1 @@
-1/Ceci est une ébauche de mon futur site qui me servira de vitrine, 
-afin de faire connaitre ma créativité.
+1/Ceci est une Ã©bauche de mon futur site qui me servira de vitrine, afin de faire connaitre ma crÃ©ativitÃ©.
